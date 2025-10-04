@@ -1,1 +1,2 @@
-# return-of-the-iron-blooded-sword-hound
+# Return Of the Iron-Blooded Hound
+Bienvenue chez les Baskervile ! Ici, les enfants sont entraînés pour devenir de terribles assassins, des chiens de chasse au service du chef de clan. Et au sein de la meute, un limier se distingue par son efficacité : Bichir, fils illégitime. Pourtant, victime d'un complot, il finit guillotiné. Alors, lorsqu'il ouvre à nouveau les yeux, transporté des années plus tôt, Bichir jure de se venger. Cette fois-ci, le chien est prêt à sortir les crocs et à mordre le cou de son maître...
